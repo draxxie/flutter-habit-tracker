@@ -4,7 +4,7 @@
 Screenshots:
 
 
-Best way to help me is by buying me a coffee:
+
 
 
 
